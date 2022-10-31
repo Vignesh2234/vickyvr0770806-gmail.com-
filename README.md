@@ -1,1 +1,0 @@
-# vickyvr0770806-gmail.com-
